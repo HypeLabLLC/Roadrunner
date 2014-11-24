@@ -1,11 +1,7 @@
-### DAFUK is DIS?
+### Client
 
-Basically hwat it luuks liek.
+Michael Belden for Roadrunner Computers
 
-### DEMO VIDEO?!
+### Site
 
-nALP nevermind
-
-### BUT WAIT
-
-Try it on yer iPad! It's seggxy.
+roadrunnercomputers.com
